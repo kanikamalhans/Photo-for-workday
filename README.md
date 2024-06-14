@@ -4,3 +4,6 @@
 ![image](https://github.com/kanikamalhans/Photo-for-workday/assets/91647703/24c05b36-02f9-452f-ab36-2f4070c13588)
 
 ![image](https://github.com/kanikamalhans/Photo-for-workday/assets/91647703/0140f88a-0818-4b3e-98e5-99bc18d18feb)
+
+![image](https://github.com/kanikamalhans/Photo-for-workday/assets/91647703/0a5c0ceb-73c8-4ce9-8330-5e7e1109dda0)
+
